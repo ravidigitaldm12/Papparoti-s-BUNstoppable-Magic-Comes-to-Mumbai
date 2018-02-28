@@ -1,0 +1,2 @@
+# Papparoti-s-BUNstoppable-Magic-Comes-to-Mumbai
+Papparoti’s served starter snacks recipes and tea time snacks recipes. Papparoti’s is a most famous brand in Dubai and it has the unique variety of coffee and beverages. The First Papparoti’s started in Malaysia in 2003 serves a great variety of Breakfast, Sandwiches, and Coffees. Now it’s come to Mumbai, this is its third outlet in India, after Hyderabad and New Delhi and they have snacks recipes, tea time snacks recipes and many more.
